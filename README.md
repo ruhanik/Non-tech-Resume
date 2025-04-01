@@ -1,4 +1,4 @@
-# Non-tech-Resume
+# Ruhani
 EDUCATION<br>
 Vellore Institute of Technology Bhopal, India<br>
 Bachelor of Technology, Bioengineering Aug 2021 - Ongoing
